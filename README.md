@@ -42,4 +42,4 @@ GitHub: [https://github.com/Maham-j]
 
 LinkedIn: [https://www.linkedin.com/in/maham-jamil-268584267].
 
-# Enjoy the timeless fun of Rock-Paper-Scissors! 🪨📄✂️
+# Enjoy the timeless fun of Rock-Paper-Scissors! 👊✋✌️
